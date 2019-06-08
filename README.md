@@ -12,4 +12,4 @@ Before my current position I have worked as a research assistant in the Global e
 
 You can find the full list of my publications at [Google Scholar](https://scholar.google.co.uk/citations?user=hjlvCIQAAAAJ&hl=en), [ResearchGate](https://www.researchgate.net/profile/Nikolaos_Papachristou) and [ORCID](https://orcid.org/0000-0002-9741-6437). 
 
-You can find more information regarding my research and professional experience as well as my public profile in my [Surrey University Web Profile](https://www.surrey.ac.uk/people/nikolaos-papachristou, [LinkedIn](https://www.linkedin.com/in/nikolaospapachristou/), and [Twitter](https://twitter.com/ehealthgr). 
+You can find more information regarding my research and professional experience as well as my public profile in my [Surrey University Web Profile](https://www.surrey.ac.uk/people/nikolaos-papachristou), [LinkedIn](https://www.linkedin.com/in/nikolaospapachristou/), and [Twitter](https://twitter.com/ehealthgr). 
